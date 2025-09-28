@@ -1,0 +1,1 @@
+# Synthesis-Purification-and-Analytical-Evaluation-of-DGEBA-Biodegradable-Epoxy-Resin
